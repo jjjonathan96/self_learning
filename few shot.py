@@ -1,0 +1,1 @@
+#1-3 example for each class with good learning
